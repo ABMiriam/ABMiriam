@@ -22,7 +22,7 @@ Here are some ideas to get you started:
 
 - ⚡ Fun fact **Me encantan los comics y los macarrones**
 
--🤓 Pronouns **She/Her**
+- 🤓 Pronouns **She/Her**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
